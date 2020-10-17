@@ -1,0 +1,1 @@
+# palais-aydine-resource
